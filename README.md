@@ -1,2 +1,5 @@
-# twd-all-stars-cheat-codes-unlimited-gold-hacks
-twd all stars codes and cheats unlimited gold Hacks coupon exchange
+# twd all stars codes and cheats unlimited gold Hacks coupon exchange
+
+twd all stars codes and cheats unlimited gold Hacks coupon exchange - Having more open space will enable you to deal with the other half of the strategy, that is, to adjust the layout of the building accordingly. When your city hall reaches a new level, the additional space you explore will naturally show additional structures that need to be repaired and utilized. Similarly, other copies of some existing structures will be available. If left unattended, this will lead to a decentralized and unorganized structure in the base camp. Many items in the base camp look cool at first. There are trees, shrubs, corpses, Brent cars and so on. You should know that except for the structure that can be upgraded, everything else can be cleaned up to obtain resources. Whenever you have free survivors, be sure to clean up your surroundings to obtain additional resources and release more space.
+
+[see here](https://fengmod.top/the-walking-dead-all-stars/)
